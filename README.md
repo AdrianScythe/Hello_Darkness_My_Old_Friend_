@@ -1,1 +1,8 @@
 # Hello_Darkness_My_Old_Friend_
+I've_Come_To_Talk_With_You_Again
+Because_A_Vision's_Softly_Creeping
+Left_It's_seeds_While_I_Was_Sleeping
+And_The_Vision_That_Was_Planted_In_My_Brain
+Still_Remains
+Within_The_Sound
+Of_Silence
